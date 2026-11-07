@@ -9,7 +9,7 @@ Estudante de **Engenharia da Computação** | Músico 🎸🎻 | Cristão ✝️
 
 ### 🚀 Sobre Mim
 
-Sou um futuro engenheiro da computação com 18 anos, sempre animado para aprender e construir. A tecnologia é o meu campo de batalha criativo! Gosto de resolver problemas e de transformar ideias em código funcional.
+Sou um futuro engenheiro da computação com 19 anos, sempre animado para aprender e construir. A tecnologia é o meu campo de batalha criativo! Gosto de resolver problemas e de transformar ideias em código funcional.
 
 Quando não estou na frente do computador, me dedico à música (sou violinista e guitarrista). Minha fé também guia meus princípios e meu propósito.
 
